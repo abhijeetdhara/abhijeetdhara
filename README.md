@@ -11,3 +11,6 @@
 
 
 <h2>Check out my journey here......</h2>
+
+*  Update[05/02/2025]
+    *   **Taken the monoSheet private as to get the necessary approvals from my employer to avoid any conflicts. Will update after a week on the outcome**.
